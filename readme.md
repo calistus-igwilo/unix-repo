@@ -11,7 +11,7 @@ Three of my favourite books are:
 
 - *Davinci Code* by Dan Brown
 - *Inferno* by Dan Brown
--*The God Father* by Mario Puzo
+- *The God Father* by Mario Puzo
 
 ### Food
 
